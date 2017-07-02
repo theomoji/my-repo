@@ -1,0 +1,1 @@
+theomoji is the expression of philosophy 
